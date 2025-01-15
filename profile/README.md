@@ -1,5 +1,9 @@
 # Bihar Board 12th Result 2025: Check Your Results Online Now
 
+| **Description**               | **Link**                     |
+|-------------------------------|------------------------------|
+| **Check Your Result Now!**      | **[Click Here](https://www.gbwhatsappapp.com/2025/01/bihar-board-12th-result-2025.html)**            |
+
 The **Bihar Board 12th Result 2025** is a highly anticipated event for students who have appeared for the Bihar School Examination Board (BSEB) Intermediate exams. This article provides a comprehensive guide on how to check your results, important dates, and other essential details to ensure you stay updated and prepared.
 
 ---
