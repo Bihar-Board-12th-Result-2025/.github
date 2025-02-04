@@ -23,7 +23,7 @@ The **Bihar Board 12th Result 2025** is a highly anticipated event for students 
 ## **How to Check Bihar Board 12th Result 2025 Online**
 Follow these steps to check your result once it is released:
 
-1. **Visit the Official Website**: Go to [[biharboardonline.bihar.gov.in](https://www.gbwhatsappapp.com/2025/01/bihar-board-12th-result-2025.html?m=1)]([http://biharboardonline.bihar.gov.in](https://www.gbwhatsappapp.com/2025/01/bihar-board-12th-result-2025.html?m=1)) or [results.biharboardonline.com]([http://results.biharboardonline.com](https://www.gbwhatsappapp.com/2025/01/bihar-board-12th-result-2025.html?m=1)).
+1. **Visit the Official Website**: Go to [[biharboardonline.bihar.gov.in](https://www.gbwhatsappapp.com/2025/01/bihar-board-12th-result-2025.html?m=1)]([http://biharboardonline.bihar.gov.in](https://www.gbwhatsappapp.com/2025/01/bihar-board-12th-result-2025.html?m=1)) or [results.biharboardonline.com]([http://results.biharboardonline.com](https://github.com/gb-whatsapp-latest-version/)).
 2. **Click on the Result Link**: Look for the **"Intermediate Result 2025"** link on the homepage.
 3. **Enter Your Details**: Input your **roll code** and **roll number**.
 4. **Submit and View**: Click the submit button to view your result.
